@@ -2,7 +2,7 @@
 
 this page is all about getting access to anna university results 2025, looking for your anna university results 2025 here is very impressive guide which wil help you walk through the result viewing process from official COE - COntroller of examination portals. This guide applies to UG and PG students, we will cover entire step by step process, including revaluation procedure and all essential information which help you to Vew Anna university Examination results, and result verification. 
 
-### [👉 Click here to check Anna University Results 👈](https://www.dynews.net/2025/02/Anna-University-Results.html)
+### [👉➤ ►🌍📺📱👉  Click here to check Anna University Results 👈](https://www.dynews.net/2025/02/Anna-University-Results.html)
 
 
 ## How can I Access The Anan university Results Portal? 
@@ -34,6 +34,18 @@ Students anna university can download AU result marksheet directly, AU provides 
 ## What to do if i face any techinical issues while viewing anan univ results?
 
 In case of techinical issues, the university established supprot portals to help students, students can directly contact anna university IT support through dedicated support email, this is (aucoe@gmail.com). The university's IT & support team continously monitor all the issues and resolves them immediatly to ensure very smooth process to access results.
+
+## Important points to remember:
+
+- Always use the official site >> coe1.annauniv.edu for checking your results.
+- keep your register number and login credentials very handy or note it down in safe place
+- If you have failed or got in satisfactory marks, apply immedialy for revaluation, also check revaluation last tates after result publication
+- download your marksheet only from Anna university website, and save it for future referece.
+- Stay connected with Anna university portal for all kinds of news and announcements.
+- Contact Anna university Techinical support team only for all kinds of dubts regarding Results.
+- Double check results and mark sheet carefully after getting result.
+- Maintain documents clearly, set all result related documents handy, or make copies and file it.
+- Check all important dates and last dates, for revaluation.
 
 
 
