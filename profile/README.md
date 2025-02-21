@@ -18,6 +18,13 @@ Here is the very strait process to check anna university results, we need your a
 3. enter your registration number provided by annauniv edu
 4. after filling all the details mark sheet will be displayed.
 
-**This smooth process can help students to view their semester Exam results.
-**
+This smooth process can help students to view their semester Exam results.
+
+## Purpose of Anna university COE Portals: what results can i access from COE Portal?
+
+The Anna univeristy COE -> Controller of Examiations portal provides various results such as, Main exam results, Revaluation results, Distance education resutls and special examination schedules. The candidates who are currently undergoing through UG and PG courses, can check their result from coe portals, all examination results are stored in centralized anna university servers. This helps students to access sem exam results instantly. The portal also provide final result and merit list. 
+
+## how to download AU Results Marklist Directly ??
+
+Students anna university can download AU result marksheet directly, AU provides a direct link to download official marklist through student login portal I.E (COE) Portals. As we discussed earlier, this portal contails basic authorization, student need to complete it in order to view result. After loggin into students portal, students can acces their university marksheet in PDF format. This system is implemented recently to make process more efficiet for students. 
 
