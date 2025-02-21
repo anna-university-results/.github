@@ -2,6 +2,9 @@
 
 this page is all about getting access to anna university results 2025, looking for your anna university results 2025 here is very impressive guide which wil help you walk through the result viewing process from official COE - COntroller of examination portals. This guide applies to UG and PG students, we will cover entire step by step process, including revaluation procedure and all essential information which help you to Vew Anna university Examination results, and result verification. 
 
+[👉 Click here to check Anna University Results 👈](https://www.dynews.net/2025/02/Anna-University-Results.html)
+
+
 ## How can I Access The Anan university Results Portal? 
 The Controller of Examinations (COE) is completely designed to view anna university results, this portal is dedicated to view Anna university resutls, students can check results from coe1.annauniv.edu website. This official website serves as primary web portal to view results. The univeristy is located in Chennai district Tamilnadu. The webportal also serves result for all affliated college students.
 
@@ -27,4 +30,10 @@ The Anna univeristy COE -> Controller of Examiations portal provides various res
 ## how to download AU Results Marklist Directly ??
 
 Students anna university can download AU result marksheet directly, AU provides a direct link to download official marklist through student login portal I.E (COE) Portals. As we discussed earlier, this portal contails basic authorization, student need to complete it in order to view result. After loggin into students portal, students can acces their university marksheet in PDF format. This system is implemented recently to make process more efficiet for students. 
+
+## What to do if i face any techinical issues while viewing anan univ results?
+
+In case of techinical issues, the university established supprot portals to help students, students can directly contact anna university IT support through dedicated support email, this is (aucoe@gmail.com). The university's IT & support team continously monitor all the issues and resolves them immediatly to ensure very smooth process to access results.
+
+
 
