@@ -54,5 +54,5 @@ In case of techinical issues, the university established supprot portals to help
 - Maintain documents clearly, set all result related documents handy, or make copies and file it.
 - Check all important dates and last dates, for revaluation.
 
-
+This entire update will definitly help you to view/check/download/print your anna univeristy examination result. All semester result avaliable from here. 
 
