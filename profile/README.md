@@ -4,9 +4,9 @@ this page is all about getting access to anna university results 2025, looking f
 
 ![Anna university results ](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT6sA_m9Rjhg9W0RCf0UdAI53ZteUZ459bi0Q&s)
 
-####   [👉➤ ►🌍📺📱👉  Click here to check Anna University Results 👈](https://aucoe.annauniv.edu/regular_result_nd2020/) 🛑LIVE
+####   [👉➤ ►🌍📺📱👉  Click here to check Anna University Results 👈](https://www.google.com/url?q=https%3A%2F%2Fwww.dynews.net%2F2025%2F02%2FAnna-University-Results.html&sa=D&sntz=1&usg=AOvVaw2pio8GcK7kM3sx8ZdtPVx_) 🛑LIVE
 ----
-####   [👉➤ ►🌍📺📱👉  Click here for Anna University Results 👈](https://github.com/ThulasiRamNTR/Result_Analysis)
+####   [👉➤ ►🌍📺📱👉  Click here for Anna University Results 👈](https://aucoe.annauniv.edu/regular_result_nd2020/)
 ----
 ####  [👉➤ ►🌍📺📱👉  Click here mirror for > Anna University Results 👈](https://coe1.annauniv.edu/result)
 ----
