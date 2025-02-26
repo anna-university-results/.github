@@ -4,12 +4,24 @@ this page is all about getting access to anna university results 2025, looking f
 
 ![Anna university results ](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT6sA_m9Rjhg9W0RCf0UdAI53ZteUZ459bi0Q&s)
 
+
 ####   [👉➤ ►🌍📺📱👉  Click here to check Anna University Results 👈](https://www.google.com/url?q=https%3A%2F%2Fwww.dynews.net%2F2025%2F02%2FAnna-University-Results.html&sa=D&sntz=1&usg=AOvVaw2pio8GcK7kM3sx8ZdtPVx_) 🛑LIVE
 ----
 ####   [👉➤ ►🌍📺📱👉  Click here for Anna University Results 👈](https://aucoe.annauniv.edu/regular_result_nd2020/)
 ----
 ####  [👉➤ ►🌍📺📱👉  Click here mirror for > Anna University Results 👈](https://coe1.annauniv.edu/result)
 ----
+
+| **Category**                    | **Details**                                                                                       |
+|----------------------------------|---------------------------------------------------------------------------------------------------|
+| **Latest Exam Results**         | April/May 2024 Examinations (released on Sep 27, 2024)                                           |
+| **Revaluation Results**         | Phase II Revaluation Results (announced on Nov 20, 2024)                                          |
+| **Upcoming Exam Results**       | November/December 2024 Examinations (expected in early 2025)                                      |
+| **Official Result Portal**      | [coe1.annauniv.edu](https://coe1.annauniv.edu/)                                                   |
+| **STUCOR App**                  | Download from Play Store for accessing results and assessments.                                  |
+| **Revaluation Application**     | Visit [Centre for Distance Education](https://cde.annauniv.edu/) for revaluation applications.    |
+| **Arrear Exam Results**         | Check results at [Additional Controller of Examination](https://acoe.annauniv.edu/Home/arr_result) |
+
 
 
 ## How can I Access The Anan university Results Portal? 
