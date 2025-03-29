@@ -2,7 +2,8 @@
 
 this page is all about getting access to anna university results 2025, looking for your anna university results 2025 here is very impressive guide which wil help you walk through the result viewing process from official COE - COntroller of examination portals. This guide applies to UG and PG students, we will cover entire step by step process, including revaluation procedure and all essential information which help you to Vew Anna university Examination results, and result verification. 
 
-![Anna university results ](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT6sA_m9Rjhg9W0RCf0UdAI53ZteUZ459bi0Q&s)
+![Anna university results ](![image](https://github.com/user-attachments/assets/3e43e5c3-3508-4595-b7d5-bfdfa66c2109)
+)
 
 
 ####   [👉➤ ►🌍📺📱👉  Click here to check Anna University Results 👈](https://www.google.com/url?q=https%3A%2F%2Fwww.dynews.net%2F2025%2F02%2FAnna-University-Results.html&sa=D&sntz=1&usg=AOvVaw2pio8GcK7kM3sx8ZdtPVx_) 🛑LIVE
@@ -14,7 +15,8 @@ this page is all about getting access to anna university results 2025, looking f
 
 | **Category**                    | **Details**                                                                                       |
 |----------------------------------|---------------------------------------------------------------------------------------------------|
-| **Latest Exam Results**         | April/May 2024 Examinations (released on Sep 27, 2024)                                           |
+| ** WEB Portal Online **          | www.annauniv.edu, Anna university | Public University Chennai Tamil Nadu, education in Engineering, Technology, Architecture and Applied Sciences |
+| **Latest Exam Results**         | April/May 2025 Examinations (released on Sep 27, 2024)                                           |
 | **Revaluation Results**         | Phase II Revaluation Results (announced on Nov 20, 2024)                                          |
 | **Upcoming Exam Results**       | November/December 2024 Examinations (expected in early 2025)                                      |
 | **Official Result Portal**      | [coe1.annauniv.edu](https://coe1.annauniv.edu/)                                                   |
@@ -67,4 +69,8 @@ In case of techinical issues, the university established supprot portals to help
 - Check all important dates and last dates, for revaluation.
 
 This entire update will definitly help you to view/check/download/print your anna univeristy examination result. All semester result avaliable from here. 
+
+for job updates use the following resources: 
+* [https://github.com/AP-Grama-Sachivalayam-Apply-Online](https://github.com/AP-Grama-Sachivalayam-Apply-Online)
+* [https://github.com/appsc-group-2-notification](https://github.com/appsc-group-2-notification)
 
