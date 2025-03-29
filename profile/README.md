@@ -2,9 +2,8 @@
 
 this page is all about getting access to anna university results 2025, looking for your anna university results 2025 here is very impressive guide which wil help you walk through the result viewing process from official COE - COntroller of examination portals. This guide applies to UG and PG students, we will cover entire step by step process, including revaluation procedure and all essential information which help you to Vew Anna university Examination results, and result verification. 
 
-![Anna university results ](![image](https://github.com/user-attachments/assets/3e43e5c3-3508-4595-b7d5-bfdfa66c2109)
-)
-
+![image](https://github.com/user-attachments/assets/2927c7a7-6e22-4df8-a32c-0be4bae04d6a)
+Source: www.annauniv.edu
 
 ####   [👉➤ ►🌍📺📱👉  Click here to check Anna University Results 👈](https://www.google.com/url?q=https%3A%2F%2Fwww.dynews.net%2F2025%2F02%2FAnna-University-Results.html&sa=D&sntz=1&usg=AOvVaw2pio8GcK7kM3sx8ZdtPVx_) 🛑LIVE
 ----
