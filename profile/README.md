@@ -14,7 +14,7 @@ Source: www.annauniv.edu
 
 | **Category**                    | **Details**                                                                                       |
 |----------------------------------|---------------------------------------------------------------------------------------------------|
-| ** WEB Portal Online **          | www.annauniv.edu, Anna university,  Public University Chennai Tamil Nadu, education in Engineering, Technology, Architecture and Applied Sciences |
+| **WEB Portal Online**          | www.annauniv.edu, Anna university,  Public University Chennai Tamil Nadu, education in Engineering, Technology, Architecture and Applied Sciences |
 | **Latest Exam Results**         | April/May 2025 Examinations (released on Sep 27, 2024)                                           |
 | **Revaluation Results**         | Phase II Revaluation Results (announced on Nov 20, 2024)                                          |
 | **Upcoming Exam Results**       | November/December 2024 Examinations (expected in early 2025)                                      |
