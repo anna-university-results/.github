@@ -71,8 +71,8 @@ In case of techinical issues, the university established supprot portals to help
 
 This entire update will definitly help you to view/check/download/print your anna univeristy examination result. All semester result avaliable from here. 
 
-Update: 11-03-2026 new sources added to check au results faster, exam result dates will be updated soon in this page.
-Update: 11-03-2026 New email address added to help students, to contact anna university officials.
+* Update: 11-03-2026 new sources added to check au results faster, exam result dates will be updated soon in this page.
+* Update: 11-03-2026 New email address added to help students, to contact anna university officials.
 
 
 
