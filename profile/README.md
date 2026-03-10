@@ -6,7 +6,7 @@ this page is all about getting access to anna university results 2025, looking f
 
 Source: www.annauniv.edu
 
-####   🛑LIVE Anna university results 
+####   🛑LIVE Anna university results | Check Anna University results 
 ----
 ####  [👉➤ ►🌍📺📱👉  Click here mirror for > Anna University Results 👈](https://coe1.annauniv.edu/result)
 ----
@@ -55,7 +55,7 @@ Students anna university can download AU result marksheet directly, AU provides 
 
 ## What to do if i face any techinical issues while viewing anan univ results?
 
-In case of techinical issues, the university established supprot portals to help students, students can directly contact anna university IT support through dedicated support email, this is (aucoe@gmail.com). The university's IT & support team continously monitor all the issues and resolves them immediatly to ensure very smooth process to access results.
+In case of techinical issues, the university established supprot portals to help students, students can directly contact anna university IT support through dedicated support email, this is (acoeud@annauniv.edu). The university's IT & support team continously monitor all the issues and resolves them immediatly to ensure very smooth process to access results.
 
 ## Important points to remember:
 
@@ -72,7 +72,7 @@ In case of techinical issues, the university established supprot portals to help
 This entire update will definitly help you to view/check/download/print your anna univeristy examination result. All semester result avaliable from here. 
 
 Update: 11-03-2026 new sources added to check au results faster, exam result dates will be updated soon in this page.
-
+Update: 11-03-2026 New email address added to help students, to contact anna university officials.
 
 
 
