@@ -5,9 +5,7 @@ this page is all about getting access to anna university results 2025, looking f
 ![image](https://github.com/user-attachments/assets/2927c7a7-6e22-4df8-a32c-0be4bae04d6a)
 Source: www.annauniv.edu
 
-####   [👉➤ ►🌍📺📱👉  Click here to check Anna University Results 👈](https://www.google.com/url?q=https%3A%2F%2Fwww.dynews.net%2F2025%2F02%2FAnna-University-Results.html&sa=D&sntz=1&usg=AOvVaw2pio8GcK7kM3sx8ZdtPVx_) 🛑LIVE
-----
-####   [👉➤ ►🌍📺📱👉  Click here for Anna University Results 👈](https://aucoe.annauniv.edu/regular_result_nd2020/)
+####   🛑LIVE Anna university results 
 ----
 ####  [👉➤ ►🌍📺📱👉  Click here mirror for > Anna University Results 👈](https://coe1.annauniv.edu/result)
 ----
@@ -69,23 +67,8 @@ In case of techinical issues, the university established supprot portals to help
 
 This entire update will definitly help you to view/check/download/print your anna univeristy examination result. All semester result avaliable from here. 
 
-for job updates use the following resources: 
-* [https://github.com/AP-Grama-Sachivalayam-Apply-Online](https://github.com/AP-Grama-Sachivalayam-Apply-Online)
-* [https://github.com/appsc-group-2-notification](https://github.com/appsc-group-2-notification)
+Update: 11-03-2026 new sources added to check au results faster, exam result dates will be updated soon in this page.
 
-Here are some resources about Coupon Codes: Check now
-* https://github.com/booking-com-promo-code
-* https://github.com/chewy-promo-code
-* https://github.com/doordash-promo-code
-* https://github.com/great-clips-coupon
-* https://github.com/hobby-lobby-coupon
-* https://github.com/kohls-coupon
-* https://github.com/mounjaro-coupon
-* https://github.com/Valvoline-Coupons
-* https://github.com/Wayfair-coupon
-* https://github.com/zepbound-coupon
 
-The above resources are useful for all coupon codes and discounts, we kindly request you to have a look on those codes, to access all discounts and make sure to visit links. for more info Contact us using the provided email.
--------
 
 
