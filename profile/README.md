@@ -1,6 +1,6 @@
-# Anna university results COE ✅ :: www annauniv edu :: 
+# Anna university results 2026 COE ✅ :: www annauniv edu :: 
 
-this page is all about getting access to anna university results 2025, looking for your anna university results 2025 here is very impressive guide which wil help you walk through the result viewing process from official COE - COntroller of examination portals. This guide applies to UG and PG students, we will cover entire step by step process, including revaluation procedure and all essential information which help you to Vew Anna university Examination results, and result verification. 
+this page is all about getting access to anna university results 2026, looking for your anna university results 2026 here is very impressive guide which wil help you walk through the result viewing process from official COE - COntroller of examination portals. This guide applies to UG and PG students, we will cover entire step by step process, including revaluation procedure and all essential information which help you to Vew Anna university Examination results, and result verification. 
 
 <img width="1126" height="111" alt="image" src="https://github.com/user-attachments/assets/639bbc95-dc45-488d-8a28-d30120f3e4cb" />
 <img width="956" height="856" alt="image" src="https://github.com/user-attachments/assets/7db1edfa-73df-429a-a435-8e1bea55ad10" />
@@ -15,9 +15,9 @@ Source: www.annauniv.edu
 | **Category**                    | **Details**                                                                                       |
 |----------------------------------|---------------------------------------------------------------------------------------------------|
 | **WEB Portal Online**          | www.annauniv.edu, Anna university,  Public University Chennai Tamil Nadu, education in Engineering, Technology, Architecture and Applied Sciences |
-| **Latest Exam Results**         | April/May 2025 Examinations (released on Sep 27, 2024)                                           |
+| **Latest Exam Results**         | April/May 2026 Examinations (released on Sep 27, 2024)                                           |
 | **Revaluation Results**         | Phase II Revaluation Results (announced on Nov 20, 2024)                                          |
-| **Upcoming Exam Results**       | November/December 2024 Examinations (expected in early 2025)                                      |
+| **Upcoming Exam Results**       | November/December 2024 Examinations (expected in early 2026)                                      |
 | **Official Result Portal**      | [coe1.annauniv.edu](https://coe1.annauniv.edu/)                                                   |
 | **STUCOR App**                  | Download from Play Store for accessing results and assessments.                                  |
 | **Revaluation Application**     | Visit [Centre for Distance Education](https://cde.annauniv.edu/) for revaluation applications.    |
